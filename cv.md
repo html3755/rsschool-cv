@@ -4,8 +4,8 @@
 ### Contact info:
 **Phone:** +375 29 868 61 09
 **E-mail:** sidorovichdaniil375@gmail.com  
-**Telegram:** @Mrrk4_r  
-**Discord:**  @xgsii6
+**Telegram:** @Mrrk4_r   
+**Discord:**  @xgsii6    
 
  ___
 
